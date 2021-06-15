@@ -30,6 +30,6 @@ Este comando tiene la funcion de reactivar el password o relogear
 
 *My Github*
 
-Suigkueme si deseas en Github
+Suigueme en github :)
 
 https://github.com/jockertermux
